@@ -1,4 +1,3 @@
-### Hi there 👋
 
 - 👋 Hi, I’m Konstantin.
 - 💞️ I love riding horses 🐎, driving my Wrangler and collecting 🍷 wines.
