@@ -1,5 +1,5 @@
 
-- 👋 Hi, I’m Konstantin.
+- 👋 Hi, I’m [Konstantin](https://v1.nameshouts.com/libs/media/konstantin_ru.mp3).
 - 💞️ I love riding horses 🐎, driving my Wrangler and collecting 🍷 wines.
 - 📫 You can reach me through my [twitter](https://twitter.com/tinovyatkin) or [LinkedIn](https://www.linkedin.com/in/tinovyatkin/).
 
